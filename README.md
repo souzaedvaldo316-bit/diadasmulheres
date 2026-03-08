@@ -1,2 +1,0 @@
-# diadasmulheres
-dia das mulheres
